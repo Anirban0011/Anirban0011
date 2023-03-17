@@ -1,4 +1,4 @@
-I'm a science, arts and sports enthusiast. Well, that's all 😂😂😂
+Stuck in a universe that forces me to write something here :(
 
 <!---
 Anirban0011/Anirban0011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
