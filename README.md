@@ -1,4 +1,4 @@
-Stuck in a universe that forces me to write something here :(
+Thinking what to build next
 
 <!---
 Anirban0011/Anirban0011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
